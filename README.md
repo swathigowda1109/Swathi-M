@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi <br>    my name is  SWATHI M 👋<br>        I am developer👩‍💻<br>        📌Basildon UK  📱 +44-7771201111<br>      ✉️ swathimanu1109@gmail.com
+Hi <br>    my name is  SWATHI M 👋<br>        I am a developer👩‍💻<br>        📌Basildon UK  📱 +44-7771201111<br>      ✉️ swathimanu1109@gmail.com
 
 
 ## 🌐 Socials:
